@@ -18,7 +18,6 @@
 
 - 📫 How to reach me **donghkti10@gmail.com**
 
-- ⚡ Fun fact **Valorant Ig: Fuyuhiko#Zero**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
